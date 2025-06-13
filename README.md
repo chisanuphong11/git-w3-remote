@@ -1,1 +1,1 @@
-# MyGit [Chisanuphong Treeboonpluk]
+# MyGit [CHISANUPHONG Treeboonpluk]
